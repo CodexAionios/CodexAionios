@@ -16,6 +16,5 @@ I believe in evidence-based approaches to space exploration that prioritize astr
 
 ## Contact
 - Email: [octaviapolishome@gmail.com]
-- Twitter: [@octaviapolis]
 
 *"We're not slowing space exploration - we're ensuring its success by solving the hard problems first."*
